@@ -1,0 +1,1 @@
+# Kamashi_granites_test1
